@@ -2,7 +2,7 @@
 
 ✅ https://www.twitch.tv/cinepopcorn5_0 <-- various content
 
-✅ https://www.twitch.tv/lepheonixxx <-- Marvels Cinema Univers films
+✅ https://www.twitch.tv/lepheonixxx <-- Marvel Cinematic Universe films
 
 ✅ https://www.twitch.tv/lejaguarrr <-- Scrub serie
 
