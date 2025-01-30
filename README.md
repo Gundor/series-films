@@ -8,7 +8,7 @@
 
 ✅ https://www.twitch.tv/lelionsss <-- X-files serie
 
-✅ https://www.twitch.tv/LeDragonnn <-- Indiana Jones movies / Pirates of the Caribbean films / and others movies
+✅ https://www.twitch.tv/LeDragonnn <-- Indiana Jones movies / Pirates of the Caribbean movies / and others movies
 
 ❌ https://www.twitch.tv/ryosaebatv <-- City Hunter anime 
 
