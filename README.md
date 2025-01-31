@@ -34,6 +34,8 @@
 
 ✅ https://www.twitch.tv/fr_futurama <-- futurama anime
 
+✅ https://www.twitch.tv/breaking_tv <-- various SF movies
+
 ✅ https://www.twitch.tv/chroniquesdebureau <-- caméra café serie
 
 Note : ❌ means channel is offline, ✅ means channel is online
