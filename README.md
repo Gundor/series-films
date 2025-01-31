@@ -34,6 +34,10 @@
 
 ✅ https://www.twitch.tv/fr_futurama <-- futurama anime
 
+✅ https://www.twitch.tv/cine_stell <-- Marvel Cimenatic Universe movies
+
+✅ https://www.twitch.tv/cine_animation1 <-- animation movies
+
 ✅ https://www.twitch.tv/breaking_tv <-- various SF movies
 
 ✅ https://www.twitch.tv/chroniquesdebureau <-- caméra café serie
