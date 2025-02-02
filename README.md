@@ -38,6 +38,8 @@
 
 ✅ https://www.twitch.tv/cine_animation1 <-- animation movies
 
+✅ https://www.twitch.tv/Homer_TV6 <-- The Simpsons animated sitcom
+
 ✅ https://www.twitch.tv/breaking_tv <-- various SF movies
 
 ✅ https://www.twitch.tv/chroniquesdebureau <-- caméra café serie
