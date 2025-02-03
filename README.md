@@ -20,9 +20,7 @@
 
 ✅ https://www.twitch.tv/squidbreakviking <-- Vikings serie
 
-❌ https://www.twitch.tv/fueg0_live <-- various content 
-
-❌ https://www.twitch.tv/ratatouille_fr <-- various content 
+✅ https://www.twitch.tv/fueg0_live <-- various content 
 
 ✅ https://www.twitch.tv/tony3poinzero_tv <- stargate series
 
