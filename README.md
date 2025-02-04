@@ -42,5 +42,7 @@
 
 ✅ https://www.twitch.tv/chroniquesdebureau <-- caméra café serie
 
+✅ https://www.twitch.tv/7bobinice6 <-- Dexter serie
+
 Note : ❌ means channel is offline, ✅ means channel is online
 
