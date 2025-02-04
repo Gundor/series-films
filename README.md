@@ -22,9 +22,11 @@
 
 ✅ https://www.twitch.tv/fueg0_live <-- various content 
 
-✅ https://www.twitch.tv/tony3poinzero_tv <- stargate series
+✅ https://www.twitch.tv/tony3poinzero_tv <-- stargate series
 
-✅ https://www.twitch.tv/le_coin_retro_ss <- Malcom serie
+✅ https://www.twitch.tv/le_coin_retro_ss <-- Malcom serie
+
+✅ https://www.twitch.tv/malcolm_fhd_ <-- Malcom serie
 
 ✅ https://www.twitch.tv/thony200 <-- stargate series and movie
 
