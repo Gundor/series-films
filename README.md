@@ -8,6 +8,8 @@
 
 ✅ https://www.twitch.tv/lelionsss <-- X-files serie
 
+✅ https://www.twitch.tv/LeRenardss <-- Fast and Furious movies
+
 ✅ https://www.twitch.tv/LeDragonnn <-- Indiana Jones movies / Pirates of the Caribbean movies / and others movies
 
 ✅ https://www.twitch.tv/ryosaebatv <-- various content 
