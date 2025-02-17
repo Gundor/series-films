@@ -42,11 +42,13 @@
 
 ❌ https://www.twitch.tv/southparktv_4k_ <-- The Simpsons animated sitcom
 
-❌ https://www.twitch.tv/south_park_fr_ <-- The Simpsons animated sitcom
+✅ https://www.twitch.tv/south_park_fr_ <-- The Simpsons animated sitcom
 
 ❌ https://www.twitch.tv/south_park_france1 <-- The Simpsons animated sitcom
 
 ✅ https://www.twitch.tv/cinecomplet <-- The Simpsons animated sitcom
+
+✅ https://www.twitch.tv/americandadtv_4k_ <-- The Simpsons animated sitcom
 
 ✅ https://www.twitch.tv/breaking_tv <-- various SF movies
 
@@ -55,6 +57,8 @@
 ✅ https://www.twitch.tv/film_serie_chill <-- Malcom serie
 
 ❌ https://www.twitch.tv/7bobinice6 <-- Dexter serie
+
+✅ https://www.twitch.tv/latvfrancaiseofficielle <-- H serie
 
 Note : ❌ means channel is offline, ✅ means channel is online
 
